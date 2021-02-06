@@ -1,1 +1,1 @@
-# SSS
+# Student Scientific Society
